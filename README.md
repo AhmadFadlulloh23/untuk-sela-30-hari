@@ -1,1 +1,0 @@
-# untuk-sela-30-hari
